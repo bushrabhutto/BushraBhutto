@@ -12,7 +12,7 @@
 - ⚡ Fun fact **I spend most of my free time with myself**
 
 <h3 align="left">Connect with me:</h3>
-<p><img align="center" src="https://cdn.dribbble.com/users/4055494/screenshots/15215756/media/d2b66c4ca0192aa26d103448b3d1518b.gif "    /></p> 
+
 <p align="left">
 </p>
 
